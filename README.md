@@ -17,7 +17,6 @@ Skills
 •  Video Editing
 •  US Rater
 •  Web Design/Front End Developer
-•          Upwork Profile 
 
 
 
